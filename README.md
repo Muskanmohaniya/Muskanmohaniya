@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Muskanmohaniya
-- 👀 I’m interested in modelling, travelling and reading books 
+- 👀 I’m interested in travelling and reading books 
 - 🌱 I’m currently learning Btech in cse from IET Davv Indore 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me .. through linkedIn 
